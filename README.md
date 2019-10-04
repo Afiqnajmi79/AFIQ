@@ -1,0 +1,2 @@
+# AFIQ
+Terus berusaha 
